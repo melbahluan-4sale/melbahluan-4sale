@@ -8,8 +8,7 @@
 
 📫 How to reach me:
 - Email: mohamed.abdelmaguid@4sale.tech
-- LinkedIn: [Mohamed Abdelmaguid](https://www.linkedin.com/in/mohamed-abdelmaguid-ai/)
-
+  
 😄 Pronouns: He/Him
 
 ⚡ Fun fact: I love sports, especially CrossFit and padel, and I enjoy exploring new music and podcasts!
