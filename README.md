@@ -11,4 +11,4 @@
   
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I love sports, especially CrossFit and padel, and I enjoy exploring new music and podcasts!
+⚡ Fun fact: I love sports, especially CrossFit and padel, and I enjoy listening to music and podcasts!
